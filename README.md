@@ -1,1 +1,0 @@
-# sibintek_projects
